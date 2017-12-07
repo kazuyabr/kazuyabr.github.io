@@ -1,1 +1,0 @@
-# kazuyabr.github.io
